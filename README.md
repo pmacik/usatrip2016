@@ -27,5 +27,17 @@
    * Vyrážíme směr Joshua Tree Park
  * 12:15
    * Nacházíme velké obchodní centrum Walmart Supercenter, kde konečně nakupujeme stany a zásoby a náhodou zde potkáváme mladý český pár, který je tu také na dovolené.
- * 13:00
-   * 
+   * Po nákupu ve Walmartu nám už zbývá pouhých 5 km do Joshua Tree Parku
+ * 13:20
+   * Vjíždíme do Joshua Tree Parku a zjišťujeme, že je zde možné i kempovat. Všichni se shodujeme, že na takovém vyprahlém místě by se nám kempovat nechtělo.
+   * Krátce po vjezdu se otevírají nádherné pohledy na krajinu plnou mohylových vrchů a stromů Joshua Tree, které jak zjišťujeme nejsou ve skutečnosti stromy, ale juky.
+   * Při pořizování společné fotky jsme potkali dva německé turisty, kteří nám společnou fotku pořídili. Dozvídáme se, že onen němec před 4 lety byl v Praze a moc se mu tam líbilo.
+ * 14:40
+   * Zastavujeme se u většího kopečku, kde se Čermis s Borisem rozhodli vylézt na vrch a užít si výhledu. V Renatě klíčí nervozita a přeje si, aby už byl Čermis v pořádku dole.
+   * Pavel se chystá kluky vyfotit a zatímco čeká dole, objevuje skálu ve tvaru hlavy indiána.
+   * Vše dopadlo dobře, takže jedeme dál.
+ * 15:20
+   * Zastavujeme se u skály ve tvaru lebky, kde se Pavel rozhodne nechat se vyfotit v jejím očním důlku a Renatě se povede záběr, ve kterém není ani jeden z dalších přítomných turistů.
+ * 15:50
+   * Opouštíme Joshua Tree Park a naším novým a dnes již konečným cílem se stává městečko Flagstaff, kde chceme přenocovat.
+   * Potřebujeme tankovat benzín a tak nacházíme benzinku K-Mart, kde zjišťujeme, že  
