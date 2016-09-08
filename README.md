@@ -39,5 +39,25 @@
  * 15:20
    * Zastavujeme se u skály ve tvaru lebky, kde se Pavel rozhodne nechat se vyfotit v jejím očním důlku a Renatě se povede záběr, ve kterém není ani jeden z dalších přítomných turistů.
  * 15:50
-   * Opouštíme Joshua Tree Park a naším novým a dnes již konečným cílem se stává městečko Flagstaff, kde chceme přenocovat.
-   * Potřebujeme tankovat benzín a tak nacházíme benzinku K-Mart, kde zjišťujeme, že  
+   * Opouštíme Joshua Tree Park a naším  a nikde nic, nakonec Borinovým a dnes již konečným cílem se stává městečko Flagstaff, kde chceme přenocovat.
+   * Potřebujeme tankovat benzín a tak nacházíme benzinku K-Mart, kde zjišťujeme, že nevíme, na co naše auto jezdí, a tak hledáme štítky po autě, v návodě, v techničákus volá do autopůjčovny, kde nám potvrdí naše podezření, že auto jezdí na benzín.
+ * 16:25
+   * Začíná naše cesta do Flagstaffu. Chvíli po začátku této etapy naší cesty se zastavujeme pro panoramatické foto a po chvilce potkáváme kojota, který na nás zvědavě kouká na kraji silnice.
+   * Cestou Pavel rezervuje hotel ve Flagstaffu - Mountain View Inn. Během vytváření rezervace volíme čas příjezdu na dobu kolem 23:00, načež nám Booking v potvrzení sděluje, že nejpozdější možný termín je do 21:00. Po krátkém telefonátu Pavla do hotelu máme potvzený pozdější příjezd a jedeme s klidným srdcem a začínáme se těšit na postel.
+ * 17:30
+   * Děláme si malou zastávku u zvláštního místa, které je opuštěné a je plné starých párů bot pověšených za tkaničky na zbytcích plotu.
+   * Cestou si Čermis pouští Výlet pana Broučka na Měsíc, což většinu ostatní posádky auta bezpečně uvede do šlofíkového režimu.
+ * 18:40
+   * Opouštíme Kalifornii na hranících s Arizonou přes řeku Colorado.
+   * Kousek za hranicemi se stavjeme na pauzu na kafe a svačinu v místě zvaném Pilot Travel Center.
+ * 19:20
+   * Svačina končí, Pavel přebírá klíčky od auta a na zbytek cesty do Flagstaffu řídí on.
+ * 22:30
+   * Konečně přijíždíme do Flagstaffu, kde Pavel vlivem únavy marně hledá spojku a řadící páku, aby na křižovatce před benzinkou vyřadil, což naši cestu o kousem prodlouží o pár mil zajížďky, ale nakonec se vracíme k benzince, kde ještě tankujeme benzín a pak už si to zamíříme rovnou k hotelu.
+   * Check-in probíhá během 3 minut a konečně se všichni blížíme ke sprchám a ke svým postelím.
+ * 00:20
+   * Zhasínáme a jdeme definitivně spát.
+
+## 8.9.2016
+ * 06:30
+   * Vstáváme
