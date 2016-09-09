@@ -23,6 +23,7 @@
    * Odjíždíme se skvělým zážitkem plným adrenalinu a vzpomínek na krásnou viktoriánskou vilu.
  * 10:30
    * Nacházíme obchodní dům Redlands Mall, kde chceme nakupit zásoby, ale zjišťujeme, že většinu toho, co potřebujeme tu nemají. Pavel nachází pobočku T-Mobile a kupuje si SIMku s místním číslem a tarifem s internetem.
+   * Perličkou momentu se stává objev Veselé krávy mezi luxusními sýry.
  * 11:00
    * Vyrážíme směr Joshua Tree Park
  * 12:15
