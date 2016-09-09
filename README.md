@@ -84,4 +84,42 @@
    * Po obědě vyrážíme k našemu dnešnímu druhému cíli, národním monumentem [Montezuma Castle](https://www.nps.gov/moca/index.htm) cestou zpět do Flagstaffu a pak dále k městečku Camp Verde, poblíž něhož se monument nachází.
    * U Flagstaffu nás trochu trápí navigace, ale nakonec správnou cestu nacházíme a jedeme po ní.
  * 12:45
-   * 
+   * Cestou se zastavujeme se na scénické vyhlídce na údolí Oak Creek.
+ * 12:50
+   * Jak jedeme dále, otevírá se nám pohled na rudé skalní útvary a autem se ozývá první "wow", které nám vydrží až do večera.
+ * 14:00
+   * Přijíždíme k monumentu Montezuma Castle a v návštěvnickém centru kupujeme klobouky proti slunci, magnetky na lednici jako suvenýr a míříme rovnou k samotnému monumentu.
+   * U něj potkáme čiperného staříka, který tu jako dobrovolník působí jako průvodce a ochotně a s úsměvem nám vypráví historii i fakta ohledně indiánů, kteří zde kdysi žili. Onen monument je totiž obydlím indiánů, kteří ho vybudovali ve skále a jeskyních - tzv. pueblo. Velmi příjemný pán. 
+ * 15:00
+   * Jedeme se podívat k dalšímu pueblu a kolem něj, tentokrát vybudovaném na přírodní vodní nádrži v jámě v zemi, kterou indiáni používali jako studnu, [Montezuma Well](https://en.wikipedia.org/wiki/Montezuma_Well)
+ * 15:30
+   * Míříme k dalšímu dnešnímu cíli, k rudým skalním útvarům [Catedral Rock](https://en.wikipedia.org/wiki/Cathedral_Rock) u městečka Sedona.
+ * 15:40
+   * Cestou se stavujeme v obchůdku Dollar General, kde kupujeme mimo jiné zásoby vody na dalších pár dní.
+ * 16:25
+   * Dáváme si pauzu v městečku Village of Oak Creek, kde si na dohled na Cathedral Rock dáváme kafe, zmrzlinu a nějaký ten zákusek
+ * 16:45
+   * Pokračujeme v cestě.
+ * 16:50
+   * Přijíždíme ke Cathedral Rock, parkujeme a žasneme nad tou přírodní krásou.
+   * Vydáváme se na trail, který by nás měl dovést za místo s širokou vyhlídkou do okolí.
+   * Renča na půli cesty pro nevhodné kalhoty zastavuje s tím, že tu na nás počká.
+   * Zkoušíme fotit otevírající se scenérie mobilem, který takové světelné podmínky nezvládá, a porovnáváme ho se zrdaclovkou a těšíme se na výsledné fotky, až je Pavel "vyvolá".
+ * 17:40
+   * Docházíme na konec trailu, kocháme se výhledy po krajině a shodujeme se na tom, že náročný výstup stál za to.
+ * 18:20
+   * Vracíme se k autu, Pavel zjišťuje, že se cestou otřel o kaktus a vytahuje ze zadní části svého boku spustu malých trnů.
+   * Čermis se rozhodl skusit najít kešku, je-li tu někde schovaná, a tak mu Pavel sdílí internet z mobilu a marně hledáme silnější signál. Po 10 minutách myšlenku kešky opouštíme a vyrážíme zpět do Flagstaffu, kde nás už čeká sprcha, jídlo a postel.
+ * 18:40
+   * Cesta nás vede přes kaňon Oak Creek Canyon, který nás všechny udivuje, až na Renču, která ve vzrůstajícím šeru šeroslepne a přestává vidět detaily.
+ * 19:00
+   * Končí rudé skály a začíná prudké stoupání serpentinami z kaňonu.
+ * 19:30
+   * Přijíždíme k našemu dnešnímu motelu Super 8 ve Flagstaffu.
+ * 20:30
+   * Po povinné sprše všech zůčastněných vyčrážíme ven za vidinou burgeru, který si dáváme ve fast foodu Jack in the box.
+   * K burgeru si dáváme každý jiný nápoj na zkoušku a Čermis zjšťuje, že root-beer není nic dobrého. Zkoumáme jeho chuť a docházíme k názoru, že připomíná kolu s kuličkovými žvýkačkami, které si pamatujeme z dětství.
+ * 21:45
+   * Vetšina jde spát, Pavel ještě pracuje na fotkách a deníku.
+ * 23:00
+   * Pavel jde taky do postele a tím končí náš dnešní den.
