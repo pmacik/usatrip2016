@@ -175,3 +175,36 @@
       * Parkujeme auto na nám přiděleném místě a stavíme stany.
    * 21:30
       * Postupně zalézáme do stanů, abychom mohli vstřebávat dnešní zážitky a vyspat se na zítřek.
+## 10.9.2016
+   * 6:30
+      * Objevují se první sluneční paprsky
+   * 7:00
+      * Vstáváme, abychom se zahřáli na sluníčku po noci, kdy bylo 6 stupňů, a vyměnujeme si zážitky z chladné noci ve stanu.
+   * 8:00
+      * Máme složené stany a vše sbaleno, a tak odjíždíme z kempu.
+      * Řidičem je pro dnešek Pavel.
+      * Stavujeme se v nedalekém obchodě a nakupujeme zásoby. Na místním poštovním úřadě chceme poslat pohledy, ale zjišťujeme, že je úřad v sobotu zavřený. Poštovní známky v obchodě nevedou, ale svitne nám naděje, když se dozvídáme, že u Grand Canyonu na obchodní části je jiná pobočka pošty, která má mít otevřeno až do 12:30.
+   * 8:44
+      * Vydáváme se tedy zpět ke Grand Canyonu, abychom tam mohli poslat pohledy.
+   * 9:00
+      * Snídáme na lavičce se sluncem pomalu ohřívajícím vzduch a slibující další horký den.
+   * 9:45
+      * Odcházíme na poštu koupit známky a poslat pohledy, ale ukazuje se, že místní pošta má rovněž zavženo. S poslední kapkou naděje míříme do místního obchodu, kde s radostí zjišťujeme, že známky prodávají. Kupujeme si jich několik i do zásoby, lepíme na pohledy a posíláme je na cestu k našim blízkým v ČR.
+   * 10:05
+      * Odjíždíme z národního parku a míříme do městečka Page, u kterého je přehrada Power Lake.
+      * Cesta nás vede podél okraje Grand Canyonu, a tak děláme několik zastávek u vyhlídek, abychom se ještě naposledy pokochali jeho krásou.
+   * 10:30
+      * Když přijíždíme k první vyhlídce, navigace se nás snaží navézt přímo do kaňonu tím, že u okraje kaňonu nám radí odbočit vpravo, kam cesta nevede, zato je tu okraj kaňonu a za ním propad do něj :)
+   * 10:45
+      * Koukáme do kaňonu z další vyhlídky na cestě - Moran Point.
+   * 11:15
+      * Zastavujem na poslední vyhlídky do Grand Canyonu - Lipan Point.
+   * 11:35
+      * Opouštíme národní park a vydáváme se za dalším dnešním cílem - [Horseshoe Bend](http://horseshoebend.com)
+   * 12:00
+      * Cestou zastavujeme u odpočívadla, kde indiáni z kmene Navajo prodávájí mimo jiné originálí bizoní jerky a šperky a podobné předměty, které sami vyrobili. Je od tud vidět i do další části Grand Canyonu, tentokrát ale z větší dálky zasazeného do kontextu celé okolní krajiny. Připomíná šrám na tváři Země.
+   * 14:00
+      * Jedeme dále k Horseshoe Bend a zastavujeme se na další vyhlídku z ptačí perspektivy na další část Grand Canyonu.
+   * 14:20
+      * Konečně přijíždíme k Horseshoe bend. Od parkoviště vede asi 1.5 míle dlouhá pěší cesta k vyhlídce a všude kolem jsou cedule s nápisy, že je extrémní horko a že každý by měl mít cestou k vyhlídce dost vody s sebou. Bavíme se jednou konkrétní cedulí, která říká: "Jsi-li jeden člověk, vem si s sebou jednu láhev. Jste-li dva, vemte si láhve 2. Jste-li ovšem 3, počet lahví, které potřebujete je kupodivu také 3" :)
+      * Horko skutečně je a 
