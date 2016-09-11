@@ -175,6 +175,7 @@
       * Parkujeme auto na nám přiděleném místě a stavíme stany.
    * 21:30
       * Postupně zalézáme do stanů, abychom mohli vstřebávat dnešní zážitky a vyspat se na zítřek.
+      
 ## 10.9.2016
    * 6:30
       * Objevují se první sluneční paprsky
