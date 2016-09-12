@@ -208,4 +208,20 @@
       * Jedeme dále k Horseshoe Bend a zastavujeme se na další vyhlídku z ptačí perspektivy na další část Grand Canyonu.
    * 14:20
       * Konečně přijíždíme k Horseshoe bend. Od parkoviště vede asi 1.5 míle dlouhá pěší cesta k vyhlídce a všude kolem jsou cedule s nápisy, že je extrémní horko a že každý by měl mít cestou k vyhlídce dost vody s sebou. Bavíme se jednou konkrétní cedulí, která říká: "Jsi-li jeden člověk, vem si s sebou jednu láhev. Jste-li dva, vemte si láhve 2. Jste-li ovšem 3, počet lahví, které potřebujete je kupodivu také 3" :)
-      * Horko skutečně je a 
+      * Horko skutečně je, ale cesta k vytoužené vyhlídce stojí za to a všichni žasneme nad její velikostí a krásou.
+      * Trávíme zde asi hodinu a pak se vracíme k autu vypražení od sluníčka, ale nadšeni tím, co jsme viděli.
+   * 15:45
+      * Přijíždíme k přehradě Glen Canyon Dam na jezeru Lake Powell a prohlížíme si hráz.
+   * 16:00
+      * Protože jsme vyhládlí a dostali jsem doporučení, stavujeme se v místní restauraci Denny's, kde si dáváme večeři.
+      * Jídlo chutná skvěle, jen slečna u obsluhy vypadá trochu zmateně, když Pavlovi k jeho steaku přinesla lívance s javorovým sirupem, který si neobjednal :)
+   * 17:20
+      * Najedení a spokojení odjíždíme smerem do hotelu v městečku Blanding a plánujeme se cestou stavit na vyhlídku Monument Valley.
+   * 17:35
+      * Ještě než se vydáme na dlouhou cestu, tankujeme benzín na benzince Shell v nedalekém městečku Page.
+   * 19:50 -> 20:50
+      * Opouštíme Arizonu a vjíždíme do Utahu, čímž se dostáváme do jiné časové zóny, která je +1
+   * 22:00
+      * Přijíždíme do našeho hotelu, Gateway Inn, kde někteří z nás mimo jiné provádějí své první ruční praní oblečení.
+   * 23:30
+      * Všichni jsme v posteli a tím končí náš další den.
