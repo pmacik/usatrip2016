@@ -16,13 +16,13 @@
    * Volantu se ujímá Čermis, který se seznamuje s ovládáním našeho auta a všichni se bavíme tím, jak prudce funguje brzda, stejně jako včerejší první pokusy Borise.
  * 8:30
    * Naším cílem se stává stará viktoriánská vila Kimberly Crest z 19. století, která stojí na 1325 Prospect Drive, v městečku Redlands ležícího na naší cestě do Joshua Tree Park.
-   * Dílčím úkolem se stává návštěva obchodního domu, abychom nakoupili stany, karimatky a jiné zásoby, které nám chybí. Pavel si dává za úkol navíc najít pobočku T-Mobile, aby si tam koupil místní SIMku s internetem.
+   * Dílčím úkolem se stává návštěva obchodního domu, abychom nakoupili stany, karimatky a jiné zásoby, které nám chybí. Dávám si za úkol navíc najít pobočku T-Mobile, abych si tam koupil místní SIMku s internetem.
  * 9:00
    * Přijíždíme k vile a díky zlepšujícím se navigačním schopnostem Renči a navigace v mobilu vjíždíme přes jeden zákaz vjezdu a po chvilce i druhý přímo před hlavní vchod vily, zaznívá "Tam tudy přeci nemůžeš!" a Honza pravdivě odpovídá "Jinudy to nejde!" a tak tedy vjíždíme na verandu a dále.
    * Naše jízda končí v úzkém místě, kde mezi plotem a autem místních zaparkovaným naproti není dostatek místa pro naše auto, tak Honza obratně vycouve a zaparkuje na dvoře před vilou. Vystupujeme a prohlížíme si krásnou vilu a její okolí a po chvíli zahlédneme šedé veverky a diskutujeme o tom, jestli jsou přerostlé a vykrmené, nebo jen jiného druhu, než jsme zvyklí z Evropy.
    * Odjíždíme se skvělým zážitkem plným adrenalinu a vzpomínek na krásnou viktoriánskou vilu.
  * 10:30
-   * Nacházíme obchodní dům Redlands Mall, kde chceme nakupit zásoby, ale zjišťujeme, že většinu toho, co potřebujeme tu nemají. Pavel nachází pobočku T-Mobile a kupuje si SIMku s místním číslem a tarifem s internetem.
+   * Nacházíme obchodní dům Redlands Mall, kde chceme nakupit zásoby, ale zjišťujeme, že většinu toho, co potřebujeme tu nemají. Nacházím pobočku T-Mobile a kupuji si SIMku s místním číslem a tarifem s internetem.
    * Perličkou momentu se stává objev Veselé krávy mezi luxusními sýry.
  * 11:00
    * Vyrážíme směr Joshua Tree Park
@@ -35,16 +35,16 @@
    * Při pořizování společné fotky jsme potkali dva německé turisty, kteří nám společnou fotku pořídili. Dozvídáme se, že onen němec před 4 lety byl v Praze a moc se mu tam líbilo.
  * 14:40
    * Zastavujeme se u většího kopečku, kde se Čermis s Borisem rozhodli vylézt na vrch a užít si výhledu. V Renatě klíčí nervozita a přeje si, aby už byl Čermis v pořádku dole.
-   * Pavel se chystá kluky vyfotit a zatímco čeká dole, objevuje skálu ve tvaru hlavy indiána.
+   * Chystám se kluky vyfotit a zatímco čekám dole, objevuji skálu ve tvaru hlavy indiána.
    * Vše dopadlo dobře, takže jedeme dál.
  * 15:20
-   * Zastavujeme se u skály ve tvaru lebky, kde se Pavel rozhodne nechat se vyfotit v jejím očním důlku a Renatě se povede záběr, ve kterém není ani jeden z dalších přítomných turistů.
+   * Zastavujeme se u skály ve tvaru lebky, kde se rozhoduju nechat se vyfotit v jejím očním důlku a Renatě se povede záběr, ve kterém není ani jeden z dalších přítomných turistů.
  * 15:50
    * Opouštíme Joshua Tree Park a naším  a nikde nic, nakonec Borinovým a dnes již konečným cílem se stává městečko Flagstaff, kde chceme přenocovat.
    * Potřebujeme tankovat benzín a tak nacházíme benzinku K-Mart, kde zjišťujeme, že nevíme, na co naše auto jezdí, a tak hledáme štítky po autě, v návodě, v techničákus volá do autopůjčovny, kde nám potvrdí naše podezření, že auto jezdí na benzín.
  * 16:25
    * Začíná naše cesta do Flagstaffu. Chvíli po začátku této etapy naší cesty se zastavujeme pro panoramatické foto a po chvilce potkáváme kojota, který na nás zvědavě kouká na kraji silnice.
-   * Cestou Pavel rezervuje hotel ve Flagstaffu - Mountain View Inn. Během vytváření rezervace volíme čas příjezdu na dobu kolem 23:00, načež nám Booking v potvrzení sděluje, že nejpozdější možný termín je do 21:00. Po krátkém telefonátu Pavla do hotelu máme potvzený pozdější příjezd a jedeme s klidným srdcem a začínáme se těšit na postel.
+   * Cestou rezervuji hotel ve Flagstaffu - Mountain View Inn. Během vytváření rezervace volím čas příjezdu na dobu kolem 23:00, načež nám Booking v potvrzení sděluje, že nejpozdější možný termín je do 21:00. Po krátkém telefonátu do hotelu máme potvzený pozdější příjezd a jedeme s klidným srdcem a začínáme se těšit na postel.
  * 17:30
    * Děláme si malou zastávku u zvláštního místa, které je opuštěné a je plné starých párů bot pověšených za tkaničky na zbytcích plotu.
    * Cestou si Čermis pouští Výlet pana Broučka na Měsíc, což většinu ostatní posádky auta bezpečně uvede do šlofíkového režimu.
@@ -52,9 +52,9 @@
    * Opouštíme Kalifornii na hranících s Arizonou přes řeku Colorado.
    * Kousek za hranicemi se stavjeme na pauzu na kafe a svačinu v místě zvaném Pilot Travel Center.
  * 19:20
-   * Svačina končí, Pavel přebírá klíčky od auta a na zbytek cesty do Flagstaffu řídí on.
+   * Svačina končí, přebírám klíčky od auta a na zbytek cesty do Flagstaffu řídím já.
  * 22:30
-   * Konečně přijíždíme do Flagstaffu, kde Pavel vlivem únavy marně hledá spojku a řadící páku, aby na křižovatce před benzinkou vyřadil, což naši cestu o kousem prodlouží o pár mil zajížďky, ale nakonec se vracíme k benzince, kde ještě tankujeme benzín a pak už si to zamíříme rovnou k hotelu.
+   * Konečně přijíždíme do Flagstaffu, kde vlivem únavy marně hledám spojku a řadící páku, abych na křižovatce před benzinkou vyřadil, což naši cestu o kousem prodlouží o pár mil zajížďky, ale nakonec se vracíme k benzince, kde ještě tankujeme benzín a pak už si to zamíříme rovnou k hotelu.
    * Check-in probíhá během 3 minut a konečně se všichni blížíme ke sprchám a ke svým postelím.
  * 00:20
    * Zhasínáme a jdeme definitivně spát.
@@ -76,7 +76,7 @@
  * 9:10
    * Přijíždíme do návštěvnického centra, kupujeme vstupenky a prohlížíme si, co si tu pro nás připravili. To nás přivede obchodu se suvenýry, kde kupujeme magnetky na lednici, jako suvenýr.
    * Prohlížíme si připravenou poučnou výstavu a pak se konečně jdeme podívat na samotný kráter.
-   * Pavel zběsile fotí kráter a zbytek se prochází po připravených betonových cestách.
+   * Zatímco já zběsile fotím kráter, zbytek se prochází po připravených betonových cestách.
  * 10:30
    * Scházíme se na malém odpočívadle ve stínu, který je uvnitř, již pod úrovní horizontu kráteru. Žasneme nad nesmírným tichem a klidem, kterým vnitřní prostor kráteru velmi silně působí.
  * 11:00
@@ -105,12 +105,12 @@
    * Přijíždíme ke Cathedral Rock, parkujeme a žasneme nad tou přírodní krásou.
    * Vydáváme se na trail, který by nás měl dovést za místo s širokou vyhlídkou do okolí.
    * Renča na půli cesty pro nevhodné kalhoty zastavuje s tím, že tu na nás počká.
-   * Zkoušíme fotit otevírající se scenérie mobilem, který takové světelné podmínky nezvládá, a porovnáváme ho se zrdaclovkou a těšíme se na výsledné fotky, až je Pavel "vyvolá".
+   * Zkoušíme fotit otevírající se scenérie mobilem, který takové světelné podmínky nezvládá, a porovnáváme ho se zrdaclovkou a těšíme se na výsledné fotky, až je "vyvolám".
  * 17:40
    * Docházíme na konec trailu, kocháme se výhledy po krajině a shodujeme se na tom, že náročný výstup stál za to.
  * 18:20
-   * Vracíme se k autu, Pavel zjišťuje, že se cestou otřel o kaktus a vytahuje ze zadní části svého boku spustu malých trnů.
-   * Čermis se rozhodl skusit najít kešku, je-li tu někde schovaná, a tak mu Pavel sdílí internet z mobilu a marně hledáme silnější signál. Po 10 minutách myšlenku kešky opouštíme a vyrážíme zpět do Flagstaffu, kde nás už čeká sprcha, jídlo a postel.
+   * Vracíme se k autu, kde zjišťuji, že jsem se cestou otřel o kaktus a vytahuji ze zadní části svého boku spustu malých trnů.
+   * Čermis se rozhodl skusit najít kešku, je-li tu někde schovaná, a tak se mu snažím sdílet internet z mobilu a marně hledáme silnější signál. Po 10 minutách myšlenku kešky opouštíme a vyrážíme zpět do Flagstaffu, kde nás už čeká sprcha, jídlo a postel.
  * 18:40
    * Cesta nás vede přes kaňon Oak Creek Canyon, který nás všechny udivuje, až na Renču, která ve vzrůstajícím šeru šeroslepne a přestává vidět detaily.
  * 19:00
@@ -121,9 +121,9 @@
    * Po povinné sprše všech zůčastněných vyčrážíme ven za vidinou burgeru, který si dáváme ve fast foodu Jack in the box.
    * K burgeru si dáváme každý jiný nápoj na zkoušku a Čermis zjšťuje, že root-beer není nic dobrého. Zkoumáme jeho chuť a docházíme k názoru, že připomíná kolu s kuličkovými žvýkačkami, které si pamatujeme z dětství.
  * 21:45
-   * Vetšina jde spát, Pavel ještě pracuje na fotkách a deníku.
+   * Vetšina jde spát, zatímco já ještě pracuji na fotkách a deníku.
  * 23:00
-   * Pavel jde taky do postele a tím končí náš dnešní den.
+   * Jdu konečně taky do postele a tím končí náš dnešní den.
 
 ## 9.9.2016
    * 7:40
@@ -135,7 +135,7 @@
       * Stále plánujeme cestu s tím, že vodopád vynecháme vzhledem k tomu, že je sucho a he pravděpodobně vyschlý a také proto, že cesta k němu by nám zabrala příliž mnoho času, který jsme chtěli věnovat Grand Canyonu.
       * Hledáme také ubytování na večer kolem města Page. Z nabídek ubytování na internetu zjišťujeme, že ubytování formou motelu je v dané oblasti pro nás příliž drahé, a tak se rozhodujeme, že dnešní noc strávíme ve stanu v některém z kempů.
    * 10:15
-      * Opouštíme motel, klíčků od auta se ujímá Pavel a vydáváme se na cestu ke Grand Canyonu.
+      * Opouštíme motel, klíčků od auta se ujímám já a vydáváme se na cestu ke Grand Canyonu.
    * 10:30
       * Zastavujeme se u benzinky Safeway ve Flagstaffu a tankujeme plnou nádrž. A pak pokračujeme v cestě.
    * 12:00
@@ -145,10 +145,10 @@
       * Rozhodujeme se, že se vydáme pěšky cestou Rim Trail, která vede po okraji kaňonu a kde na několika místech jsou zastávky kyvadlového autobusu červené linky, takže jsme jištěni, kdyby nám došli síly, můžeme dojít na nejbližší zastávku, z níž by nás autobus, který jezdí každých 10-15 minut, odvezl zpět k autu.
    * 12:50
       * Navštěvujeme místní návštěvnické centrum, kde kupujeme magnetky na lednici jako suvenýry. Poté už se vydáváme na cestu podél okraje kaňonu.
-      * Hned první pohled, který se otevřel asi po 5 minutách chůze z návštěvnického centra, nás ohromuje svou krásou. Pavel připravuje svůj foťák pro použití dálkové spouště, a tak si pořizujeme naši první společnou fotku u Grand Canyonu.
+      * Hned první pohled, který se otevřel asi po 5 minutách chůze z návštěvnického centra, nás ohromuje svou krásou. Připravuji svůj foťák pro použití dálkové spouště, a tak si pořizujeme naši první společnou fotku u Grand Canyonu.
       * Poté už jdeme po cestě dál.
    * 15:30
-      * Zastavujeme se v Bright Angel Lodge, v jedné restauraci postavené přímo u kaňonu, kde si všichni dáváme hovězí burger dle vlastního receptu. Funguje to tak, že si k masu volíme typ žemle, sýru, omáčky, přílohy a dodatečné chuťové vložky. Pavel volí ciabattu, cheddar, BBQ omáčku a salát z čerstvé zeleniny s dresinkem, který nese název restaurace. Ostatní si také sestaví svůj burger.
+      * Zastavujeme se v Bright Angel Lodge, v jedné restauraci postavené přímo u kaňonu, kde si všichni dáváme hovězí burger dle vlastního receptu. Funguje to tak, že si k masu volíme typ žemle, sýru, omáčky, přílohy a dodatečné chuťové vložky. Pro sebe volím ciabattu, cheddar, BBQ omáčku a salát z čerstvé zeleniny s dresinkem, který nese název restaurace. Ostatní si také sestavují svůj burger.
       * Největším hitem se stala omáčka chimichurry, kterou si ke svému burgeru objednala Renča.
    * 16:40
       * Končíme oběd, platíme a odcházíme z restaurace na další pokračování prohlídky Grand Canyonu.
@@ -183,7 +183,7 @@
       * Vstáváme, abychom se zahřáli na sluníčku po noci, kdy bylo 6 stupňů, a vyměnujeme si zážitky z chladné noci ve stanu.
    * 8:00
       * Máme složené stany a vše sbaleno, a tak odjíždíme z kempu.
-      * Řidičem je pro dnešek Pavel.
+      * Řidičem jsem pro dnešek já.
       * Stavujeme se v nedalekém obchodě a nakupujeme zásoby. Na místním poštovním úřadě chceme poslat pohledy, ale zjišťujeme, že je úřad v sobotu zavřený. Poštovní známky v obchodě nevedou, ale svitne nám naděje, když se dozvídáme, že u Grand Canyonu na obchodní části je jiná pobočka pošty, která má mít otevřeno až do 12:30.
    * 8:44
       * Vydáváme se tedy zpět ke Grand Canyonu, abychom tam mohli poslat pohledy.
@@ -220,8 +220,62 @@
    * 17:35
       * Ještě než se vydáme na dlouhou cestu, tankujeme benzín na benzince Shell v nedalekém městečku Page.
    * 19:50 -> 20:50
-      * Opouštíme Arizonu a vjíždíme do Utahu, čímž se dostáváme do jiné časové zóny, která je +1
+      * Opouštíme Arizonu a vjíždíme do Utahu, čímž se dostáváme do jiné časové zóny, která je o hodinu blíže východu.
+      * Monument Valley jsme bohužel nestihli, protože slunce už zapadlo.
    * 22:00
-      * Přijíždíme do našeho hotelu, Gateway Inn, kde někteří z nás mimo jiné provádějí své první ruční praní oblečení.
+      * Přijíždíme do našeho hotelu, Gateway Inn, kde na nás čeká vytoužená sprcha a postel.
+      * Někteří z nás provádějí své první ruční praní oblečení.
    * 23:30
       * Všichni jsme v posteli a tím končí náš další den.
+
+## 11.9.2016
+   * 7:20
+      * Vychází slunce mezi mraky a hrozí, že dnes bude oblačno.
+   * 9:10
+      * Všichni společně vstáváme.
+   * 9:40
+      * Společně odcházíme do vestibulu hotelu, kde na nás čeká snídaně připravená hotelem.
+   * 10:35
+      * Máme sbaleno a odjíždíme k našemu dnešnímu cíli a tím je národní park Canyonlands a cestou kolem archeologické zajímavosti a záhady, Newspaper Rock.
+      * Klíčků od auta a řízení se pro dnešek ujímá Boris.
+   * 10:40
+      * Stavujeme se v místním obchodě pro zásoby vody.
+      * Uvědomuji si, že jsem na hotelu v lednici zapomněl svoje balení jerky.
+   * 11:00
+      * Jsme zpět u hotelu, kde si vyzvedávám svoje jerky, a tak se můžeme vydat na cestu.
+   * 11:30
+      * Ve městečku Monticello se zastavujeme u benzinky Shell, kde tankujeme benzín a kupujeme si kafe na cestu.
+   * 12:20
+      * Přijíždíme k Newspaper Rock a prohlížíme si nepochopitelné výjevy zaznamenané do skalní stěny.
+      * Zde mezi dalšími návštěvníky potkáváme starší pár z Brna, který je tu naky na výletě, svět je vskutku malým místem a o náhody v něm není nouze :)
+      * Ochutnáváme mentolky Altoids a shodujeme se, že jejich chuť a vůně připomíná Toi Toi.
+   * 13:15
+      * Projíždíme vstupní branou do národního parku Canyonlands. Zaznívají obavy, zda-li nám zde platí náš Annual Pass, či jestli nebude nutné zaplatit vstup za naše auto, ale obavy se ukazují jako zbytečné, ranger v bráně nás vesele pouští dovnitř bez sebemenčích problémů.
+   * 13:30
+      * Zastavujeme se na první vyhlídce, na oblouk ve skále připomínající dřevěnou botu - Wooden Shoe Arch.
+   * 13:45
+      * Stavíme podruhé, tentokrát abychom se podívali na skalní útvar připomínající slona zvaný Elephant Hill.
+      * Chvíli zde zůstáváme a užíváme si hluboký klid, hrejivé slunce a šumění větru, který se prohání mezi zaoblenými červeno-bílými skálami.
+   * 14:20
+      * Dojíždíme na konec cesty autem a nastupujeme na místní pěší trail, který slibuje prohlídku místních rudých skalisek.
+   * 15:40
+      * Vracíme se k autu, vyprahlí ale nadšení z toho, co jsme viděli.
+      * U auta zjišťujeme, že jsou zablokované zadní dveře do kufru a nejdou zavřít. Po krátkém zkoumání přicházíme na to, že je to způsobeno skřípnutím popruhu v mechanismu zámku.
+      * Nemá cenu to tu teď řešit, a tak jedeme dále.
+   * 16:05
+      * Opouštíme národní park.
+   * 17:00
+      * Zastavujeme u skalního útvaru Wilson Arch, který na nás velmi působí, a tak si ho jdeme podrobně prohlédnout a pořídit pár fotek.
+   * 17:25
+      * Pokračujeme v cestě dále.
+   * 17:45
+      * Přijíždíme do městeška Moab, kde hledáme míísto, kde se najíme a také ubytování pro dnešní noc.
+   * 17:50
+      * Nacházíme Moab Grill, který vypadá slibně, a tak se necháme usadit k rohovému stolu.
+   * 19:15
+      * Velmi spokojeni a najedeni, ochutnal jsem podle svého plánu hot dog připravený z hovězího masa, který byl vynikající, odcházíme z restaurace a začínáme se rozhlížet po dnešním ubytování.
+      * Městečko žije turismem, a tak najít pro nás volné místo bude výzva.
+   * 20:20
+      * Po několika neúspěšných pokusech v místních hotelech končíme v chatce v místě zvaném Moab Rim RV Campark, kde dostáváme luxusní chatku se sprchou, kterou všichni rádi absolvujeme.
+   * 22:00
+      * Po chvíli povídání si unavení jdeme lehnout a spát.
