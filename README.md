@@ -279,3 +279,58 @@
       * Po několika neúspěšných pokusech v místních hotelech končíme v chatce v místě zvaném Moab Rim RV Campark, kde dostáváme luxusní chatku se sprchou, kterou všichni rádi absolvujeme.
    * 22:00
       * Po chvíli povídání si unavení jdeme lehnout a spát.
+
+## 12.9.2016
+   * 7:15
+      * Vstáváme, když nám vycházející slunce zalije chatku i přes stažené žaluzie.
+   * 8:50
+      * Odjíždíme od kabinky, abychom odevzdali klíče a mohli se vydat na cestu. Pro dnešní den se řízení ujímá Čermis a Renča se tak stává naším palubním navigátorem a DJem.
+      * Na recepci by nás mělo čekat překapávané kafe.
+      * Kafe není tak velké, jak bychom si přáli, a tak se rozhodujeme, že najdeme nějaké místo ve městě a tam koupíme něco na zub ke snídani a také řádnou dávku kafe.
+   * 9:00
+      * Dojíždíme k místní benzínce Chevron, kde si svou touhu po kávě konečně uspokojíme.
+   * 9:30
+      * Nasedáme do auta a odjíždíme směrem do národního parku [Arches](https://www.nps.gov/arch/index.htm), který je naším dnešním cílem.
+      * Projíždíme městečkem Moab, kde si Renča chce pořídit pár fotek, např. starý dřevěný dům připomínající doby divokého západu, ve kterém dnes prodávájí elektroniku.
+   * 9:35
+      * Boris s Čermisem si všímají nabídky raftů po řece Colorado, a tak se zastavujeme, aby kluci mohli zjistit více informací.
+      * Mezitím Renča jde vyfotit další zajímavost, klasický stánek s kukuřicí, který hraje všemi barvami.
+   * 9:50
+      * Kluci zjistili, že je možnost plavby raftem na 4 hodiny za $54 na hlavu, a tak diskutujeme o tom, zda-li plavbu podniknout.
+      * Vzhledem k tomu, že je málo vody a její proud je minimální a plavba by tedy nebyla tak zábavná, nakonec se rozhodujeme, že zážitek vynecháme.
+      * Jedeme tedy dále k národnímu parku Arches.
+   * 10:00
+      * Přijíždíme ke vjezdu do parku, kde ovšem stojí skoro míli dlouhá fronta aut. Google nám sdělje svůj odhad doby strávené ve froně na 13 minut.
+   * 10:13
+      * V půlce fronty nás ranger na základě našeho annual passu pouští boční cestou a tak se dostáváme před první polovinu fronty.
+   * 10:14
+      * Skutečně vjíždíme do parku - Google se spletl jen o jedinou minutu.
+   * 10:20
+      * Zastavujeme u vyhlídky na pohoří [La Sal](https://en.wikipedia.org/wiki/La_Sal_Mountains).
+      * Prohlídku zvládáme z auta, nestojí za to vystupovat :).
+   * 10:30
+      * Stavíme u vyhlídky Courthouse Towers, kde si prohlížíme skalní útvary [Sheep Rock](http://www.summitpost.org/sheep-rock/288178) připomínající ovci, [Three gossips](http://www.summitpost.org/a-close-up-view-of-the-three/131719/c-154843) představující tři drbny a [The Organ](https://en.wikipedia.org/wiki/Arches_National_Park#/media/File:The_Organ_at_Arches_National_Park_Utah_Corrected.jpg) údajně vypadající jako varhany.
+      * Boris tu objevil také útvar, připomínající ruku se zdviženým prostředníčkem :)
+   * 10:45
+      * Jsme u vyhlídky na [Balanced Rock](https://en.wikipedia.org/wiki/Balanced_Rock) a vydáváme se na trail kolem něj.
+   * 11:20
+      * Jsme zpět u auta, navštěvujeme nedaleké toalety a míříme dále.
+   * 11:30
+      * Přijíždíme k další vyhlídce a trailu, tentokrát k [Double Arch](https://utah.com/hiking/arches-national-park/double-arch-trail) a [The Windows a Turret Arch](https://utah.com/hiking/arches-national-park/the-windows-trail).
+      * Je tu ovšem plné parkoviště, tak musíme zkusit zaparkovat u dodatečného parkoviště, které je o něco níže.
+   * 11:35
+      * Parkujeme a jdeme po trailu k Double Arch.
+   * 11:50
+      * Jsme u Double Arch a žasneme nad tím, čeho jsou příroda a čas shopni.
+   * 12:25
+      * Jdeme po dalším trailu a blížíme se k Turret Arch.
+      * Tady se rozdělujeme na dvě skupinky, Čermis s Renčou jdou dále k jižnímu oknu (The South Window), zatímco já s Borisem hledáme dokonalé místo, odkud vyfotit Turret Arch a Windows společně v zákrytu, což se nám nakonec daří.
+   * 12:50
+      * Procházíme kolem jižního okna.
+   * 13:00
+      * U druhé strany jižního okna se Boris odděluje a jde svou cestou a já zůstávám sám na zbytku trailu, což si velmi užívám pro krásu okamžiku a klidu a šumícího větru mezi skálami.
+   * 13:25
+      * Všichni se společně potkáváme u auta a vyrážíme dále.
+      
+   * Zbytek deníku bude pokračovat brzy... :)
+      
