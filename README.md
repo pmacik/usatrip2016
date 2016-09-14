@@ -16,6 +16,7 @@
    * Volantu se ujímá Čermis, který se seznamuje s ovládáním našeho auta a všichni se bavíme tím, jak prudce funguje brzda, stejně jako včerejší první pokusy Borise.
  * 8:30
    * Naším cílem se stává stará viktoriánská vila Kimberly Crest z 19. století, která stojí na 1325 Prospect Drive, v městečku Redlands ležícího na naší cestě do Joshua Tree Park.
+   
    * Dílčím úkolem se stává návštěva obchodního domu, abychom nakoupili stany, karimatky a jiné zásoby, které nám chybí. Dávám si za úkol navíc najít pobočku T-Mobile, abych si tam koupil místní SIMku s internetem.
  * 9:00
    * Přijíždíme k vile a díky zlepšujícím se navigačním schopnostem Renči a navigace v mobilu vjíždíme přes jeden zákaz vjezdu a po chvilce i druhý přímo před hlavní vchod vily, zaznívá "Tam tudy přeci nemůžeš!" a Honza pravdivě odpovídá "Jinudy to nejde!" a tak tedy vjíždíme na verandu a dále.
@@ -383,9 +384,54 @@
       * Vyrážíme dál.
    * 21:50
       * Přijíždíme do Loa k hotelu Snuggle Inn, kde na hlavních dveřích nacházím na papíře vytištěný vzkaz jmenovitě pro mě, že náš pokoj je č. 5 a že klíčky jsou ve dveřích.
+      * Fascinuje nás interiér hotelu a Renča ho přirovnává k venkovským hotelům, ve kterých se odehrávaly příběhy Jessicy Flatcherové v seriálu To je vražda, napsala.
    * 23:40
       * Všichni kromě mě už jsou v posteli, já ještě píšu deník a vyvolávám nějaké fotky.
    * 01:15
       * Ulehám i já a tím končí dnešní den.
 
-   * Deník bude brzy pokračovat :)   
+## 13.9.2016
+   * 8:30
+      * Vstáváme.
+   * 9:10
+      * Čermis a Renča jdou ven za lovem kešky.
+   * 10:20
+      * Nasedáme do auta a vydáváme se na cestu. Za volant si opět sedá Čermis.
+   * 10:40
+      * Zastavujeme u benzinky Howie's pro kafe a WC a pak jedeme dál.
+   * 11:00
+      * vjíždíme do národního lesa Dixie
+   * 11:15
+      * Stoupáme do vyšších nadmořských výšek a děláme si zastávku na vyhlídku po krajině.
+   * 11:45
+      * Dosáhli jsme pro tuto chvíli nejvyššího bodu naší cesty, 9600 stop nad mořem.
+      * Jak se tak rozhlížím po krajině, a vidím všechny ty krávy a jejich rozlehlé pastviny, na kterých se krmí, napadá mě myšlenka, že by toto mohlo být to místo, kde budou mít dobrý venkovský burger, připravený z místních krav.
+   * 12:10
+      * Zastavujeme se na oběd u Hell's Backbone Grill, kde ale zjišťujeme, že nemají burger. Jdeme tak k sousedům, Burr Trail Grill, který vypadá velmi venkovsky, kam chodí místní a ne turisti. Už po vstupu hlavními dveřmi nás v nose pohladí lahodná vůně pečeného masa proložená sladkou vůní, která slibuje i nějaký ten domácí koláč.
+      * Všichni si dáváme burger a po nakouknutí do chladícího boxu s domácími koláči i koláč jako desert. Už dlouhou dobu mi při jídle neběhal mráz po zádech slastí jako při vychutnávání tohoto koláče (dal jsem si Ginger Berry, což jsou borůvky a zázvor).
+   * 13:20
+      * Odcházíme z hospůdky s břichy plnými málem až k prasknutí a pokračujeme v naší cestě do národního parku Bryce.
+      * Začíná pršet.
+   * 13:33
+      * Z nevinného deště se stává prudký déšť doprovázený kroupami o velikosti 1-2 cm v průměru.
+   * 13:36
+      * Je po dešti a vyjasňuje se.
+   * 15:20
+      * Po krásné scénické cestě, která je podle pána na recepci hotelu Snuggle Inn jedna z deseti nejkrásnějších míst k vidění v celých USA, vjíždíme branou do národního parku Bryce, na který se nejvíc těší Renča.
+      * Parkujeme u parkoviště nedaleko návštěvnického centra s tím, že se případně svezeme místním kyvadlovým autobusem.
+   * 15:30
+      * Jsme na lovu magnetků na lednici v návštěvnickém centru.
+      * Nakonec kupujeme i pončo proti dešti, protože počasí slubuje déšť.
+   * 15:55
+      * Vyrážíme na zastávku autobusu.
+   * 16:10
+      * Nastupujeme do autobusu a jedeme k zastávce Inspiration Point u vyhlídky do kaňonu.
+      * Naším plánem je vystoupit zde, jít trailem dolů do kaňonu a pak zase vystoupat u další zastávkky autobusu Sunset Point, který by nás pak měl dovézt zpět k autu.
+   * 16:50
+      * První náznaky deště ostatní vedou k tomu, že vytahují ponča, a jakmile je mají na sobě, pršet přestává a vysvitá sluníčko :)
+   * 18:40
+      * Jsme už na cestě vzhůru z kaňonu k zastávce autobusu, když nás konečně dostihává vydatný déšť, ve kterém se našli i malé kroupy. Pěkně jsme zmokli.
+   * 19:00
+      * Jsme u zastávky autobusu, ale je to Bryce Canyon Lodge
+   
+    * Deník bude brzy pokračovat :)
