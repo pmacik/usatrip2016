@@ -290,7 +290,7 @@
    * 9:00
       * Dojíždíme k místní benzínce Chevron, kde si svou touhu po kávě konečně uspokojíme.
    * 9:30
-      * Nasedáme do auta a odjíždíme směrem do národního parku [Arches](https://www.nps.gov/arch/index.htm), který je naším dnešním cílem.
+      * Nasedáme do auta a odjíždíme směrem do národního parku [Arches](https://www.nps.gov/arch/index.htm), který je naším dnešním cílem, respektive jeho [oblouky ve skalách](https://www.nps.gov/arch/planyourvisit/upload/ARCHmap.pdf). 
       * Projíždíme městečkem Moab, kde si Renča chce pořídit pár fotek, např. starý dřevěný dům připomínající doby divokého západu, ve kterém dnes prodávájí elektroniku.
    * 9:35
       * Boris s Čermisem si všímají nabídky raftů po řece Colorado, a tak se zastavujeme, aby kluci mohli zjistit více informací.
@@ -331,6 +331,61 @@
       * U druhé strany jižního okna se Boris odděluje a jde svou cestou a já zůstávám sám na zbytku trailu, což si velmi užívám pro krásu okamžiku a klidu a šumícího větru mezi skálami.
    * 13:25
       * Všichni se společně potkáváme u auta a vyrážíme dále.
-      
-   * Zbytek deníku bude pokračovat brzy... :)
-      
+   * 13:40
+      * Jdeme na trail k vyhlídce na oblouk Delicate Arch.
+   * 13:50
+      * Přicházíme k vyhlídce, Čermis s Renčou zůstávají, zatímco já a Boris jdeme po plošině dále k vyššímu bodu, odkud bude mnohem lepší záběr na oblouk.
+   * 14:05
+      * Po pár stovkách metrů docházím na místo, kde je oblouk krásně vidět bez toho, aby překrýval něco jiného, než oblohu.
+   * 14:20
+      * Jsme zpět v autě a vyrážíme směrem k dalšímu bodu našeho programu, Devul's Garden.
+   * 14:30
+      * Zajíždíme s autem k vyhlídce na Salt Valley, ale pohled z auta nám stačí, a proto ani nezastavujem a nevystupujeme a jedema dál.
+   * 14:31
+      * Jsme u vyhlídky na další skalní útvar, tentokrát Fiery Furnace.
+   * 14:40
+      * Odjíždíme od vyhlídky a jedeme k poslednímu cíli, Devil's Garden, kde by mělo být až 7 oblouků.
+   * 14:50
+      * Projíždíme kolem Skyline Arch, kde se na krátko zastavujeme a z auta prohlížíme, než pokračujeme v cestě.
+      * Zastihává nás tu první déšť naší výpravy, i když jen ve formě krátké lehké přeháňky. Rozhodně mi ale příjde ve dnešním vedru osvěžující.
+   * 14:52
+      * Projíždíme místním kempem, který vypadá až neskutečně luxusní. Každé místo má obdélníkový asfaltový plácek na zaparkování auta, litinový válec na rozdělání táborového ohně, u něj lavičku a místo na postavení stanu. Čermis je z toho nadšený a nevěří vlastním očím a prohlašuje toto za to nej, co tu zatím viděl.
+      * Další krátká přeháňka zpříjemňuje atmosféru.
+   * 14:55
+      * Déšť ustává.
+   * 15:00
+      * Přijíždíme k parkovišti u Devil's Garden a vydáváme se na trail k místním obloukům.
+      * Zastavujeme a koukáme postupně na Tunnel Arch, Pine Tree Arch a Landscape Arch, který vypadá, že už dlouho nevydrží. U něj se s Čermisem a Renčou usuzujeme, že máme pro dnešek už dost a že se vrátíme k autu, ale Boris jde ještě o kousek dál, aby si prohlédly i další oblouky. Nakonec vidí Navajo Arch a Private Arch, ze kterého moc nadšený není.
+   * 16:20
+      * Jsme zpět v autě a čekáme na Borise. Čekání si zpestřujeme ochutnávkou bizonního jerky, jehož intenzivní masová chuť divočiny nám všem chutná.
+   * 16:44
+      * Boris se vrací, a tak vyrážíme někam na večeři cestou k vesnici Bicknell, kde chceme pro dnešek zakotvit na noc.
+   * 17:10
+      * Opouštíme hranice národního parku Arches.
+   * 17:45
+      * Vjíždíme do parku Dead Horse Point, který ovšem není národním parkem, a tak nám zde neplatí náš Annual Pass, takže platíme $10 vstupného a jedeme k vyhlídce.
+   * 17:55
+      * Přijíždíme k vyhlídce u návštěvnického centra a jdeme se kouknout do údolí.
+   * 18:03
+      * Hledáme vstup do návštěvnického centra, abych si tu mohl koupit magnetku na lednici, který nakonec najdeme, ale pán u pokladny nám s lítostí oznamuje, že právě zavřel. Zkoušíme ho přemluvit, aby ještě prodal tu magnetku, ale máme smůlu. Nestihli jsme to o 3 minuty :)
+   * 18:10
+      * Na parkovišti mám signál internetu, tak ještě než se vydáme na cestu, hledám na booking.com ubytování poblíž vesnice Bicknell a nacházím a kupuju místa v hotelu Snuggle Inn, ve vesničce Loa.
+   * 18:15
+      * Opouštíme park a míříme do Loa.
+   * 18:55
+      * U místa Crescent Junction najíždíme na dálnici 70, kde potkáváme zatím nejvyšší povolenou rychlost 80 mil/hod.
+   * 19:10
+      * Zastavujeme u benzinky Conoco ve městečku Green River, kde bereme benzin a dáváme si večeři v místním Burger Kingu.
+      * Potkáváme tu starší český pár z Lanškrouna, o kterém se dozvídáme, že jsou také na 3týdenním výletu po USA. Svět se mi najednou zdál tak malým :)
+   * 19:55
+      * U benzinky nacházím klasický telefonní automat s dírkamy perforovanýmy do tvaru sluchátka a nápisem PHONE, který znám z amerických filumů, což mi udělo radost.
+   * 20:00
+      * Vyrážíme dál.
+   * 21:50
+      * Přijíždíme do Loa k hotelu Snuggle Inn, kde na hlavních dveřích nacházím na papíře vytištěný vzkaz jmenovitě pro mě, že náš pokoj je č. 5 a že klíčky jsou ve dveřích.
+   * 23:40
+      * Všichni kromě mě už jsou v posteli, já ještě píšu deník a vyvolávám nějaké fotky.
+   * 01:15
+      * Ulehám i já a tím končí dnešní den.
+
+   * Deník bude brzy pokračovat :)   
