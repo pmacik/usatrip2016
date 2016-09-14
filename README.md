@@ -378,7 +378,7 @@
       * Zastavujeme u benzinky Conoco ve městečku Green River, kde bereme benzin a dáváme si večeři v místním Burger Kingu.
       * Potkáváme tu starší český pár z Lanškrouna, o kterém se dozvídáme, že jsou také na 3týdenním výletu po USA. Svět se mi najednou zdál tak malým :)
    * 19:55
-      * U benzinky nacházím klasický telefonní automat s dírkamy perforovanýmy do tvaru sluchátka a nápisem PHONE, který znám z amerických filumů, což mi udělo radost.
+      * U benzinky nacházím klasický telefonní automat s dírkami perforovanými do tvaru sluchátka a nápisem PHONE, který znám z amerických filumů, což mi udělo radost.
    * 20:00
       * Vyrážíme dál.
    * 21:50
