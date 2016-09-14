@@ -1,4 +1,4 @@
-# USA Trip 2016 Travel journal "DRAFT"
+# USA Trip 2016 - Cestovní deník "DRAFT"
 
 ## Učastníci
  * Pavel
