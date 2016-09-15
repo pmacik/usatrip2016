@@ -458,6 +458,7 @@
    * 10:25
       * Zastavujeme u benzinky ještě v Cedar City, kde kupujeme kávu a něco ke snídani.
       * U ní stojí americká klasika, jejíž vyfocení si nemůžu nechat ujít - Náklaďák Coca-Cola :)
-      ![Coca-Cola Truck](images/20160914_Coca-Cola_Truck.jpg)
+   * 10:45
+      * Probuzeni kafem jedeme dále směrem k našemu dnešnímu cíli, národnímu parku Zion.
         
 ## Deník bude brzy pokračovat :)
