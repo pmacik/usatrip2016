@@ -460,5 +460,19 @@
       * U ní stojí americká klasika, jejíž vyfocení si nemůžu nechat ujít - Náklaďák Coca-Cola :)
    * 10:45
       * Probuzeni kafem jedeme dále směrem k našemu dnešnímu cíli, národnímu parku Zion.
-        
+   * 11:35
+      * 10 minut před parkem se začínají objevovat cedule s nápisem "Parking full, park here". Potřebujeme ale mapu, takže to zkusíme k návštěvnickému centru, třeba budeme mít kliku.
+      * Všímáme si zastávky místního kyvadlového autobusu, tak přeci jen na místě nacházíme místo k zaparkování, necháváme auto tu a k návštěvnickému centru jedeme autobusem.
+   * 12:10
+      * Vstupujeme bránou do národního parkum, kde dostáváme i mapu, a míříme do návštěvnického centra za lovem magnetek na lednici.
+   * 12:40
+      * Už nastupujeme do autobusu linky Zion Canyon Line na zastávce č. 1 a míříme ke smaragdovým jezírkům.
+      * Cesta kaňonem je úžasná a nabízí nádherně barevné pohledy. Od skál, jejichž barva střídá rudou, růžovou až bílou, přes zelené stromy a trávu až po modrou oblohu.
+   * 13:00
+      * Jsme venku z autobusu a nastupujeme na trail, který nás přivede k jezírkům.
+   * 13:15
+      * Zaznívá čeština z úst staršího páru, který hledá, kde tu přistál ten anděl. Hledali skalní útvar [Angel's Landing](http://www.zionnational-park.com/zion-angels-landing-trail.htm).
+   * 14:00
+      * Jsme u horního ze tří jezírek, kde jsem trošku zklamaný, že nevidím onu slibovanou smaragdovou barvu jezírka. Ovšem skalní stěna, která ho obepíná je i tak krásná. Z barev jednotlivých vrstev skály a fleků, které tu zanechala tekoucí voda, je tu vymalovaný obraz skal u moře. Alespoň tak to vidí moje fantazie.
+   
 ## Deník bude brzy pokračovat :)
