@@ -447,4 +447,17 @@
    * 00:30
       * Na psaní deníku už nemám síly, takže to nechávám na zítra a jdu už taky spát.
 
+## 14.9.2016
+   * 9:30
+      * Vstáváme.
+   * 9:50
+      * Zjišťujeme, že snídaně byla jen do 9:00, a tedy že jsme ji propásli.
+      * Renča s Čermisem se vydávájí na lov kešky.
+   * 10:20
+      * Odjíždíme od hotelu a hledáme místo, kde bychom si koupili naši ranní kávu.
+   * 10:25
+      * Zastavujeme u benzinky ještě v Cedar City, kde kupujeme kávu a něco ke snídani.
+      * U ní stojí americká klasika, jejíž vyfocení si nemůžu nechat ujít - Náklaďák Coca-Cola :)
+      ![Coca-Cola Truck](https://goo.gl/photos/nrYwgDQjR5Bf5Ro89)
+        
 ## Deník bude brzy pokračovat :)
