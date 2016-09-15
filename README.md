@@ -432,6 +432,19 @@
    * 18:40
       * Jsme už na cestě vzhůru z kaňonu k zastávce autobusu, když nás konečně dostihává vydatný déšť, ve kterém se našli i malé kroupy. Pěkně jsme zmokli.
    * 19:00
-      * Jsme u zastávky autobusu, ale je to Bryce Canyon Lodge
-   
-    * Deník bude brzy pokračovat :)
+      * Jsme u zastávky autobusu, ale je to Bryce Canyon Lodge, ale navadí, autobus nás k autu i tak doveze.
+   * 19:30
+      * Jsme v autě a hledáme ubytování na Bookingu poblíž národního parku Zion, kam jedeme zítra.
+      * Nacházíme hotel ve městečku Cedar City, Cedar Rest a tentokrát platí Boris.
+   * 20:00
+      * Cestou do Cedar City stavíme u benzinky Red Canyon Conoco a tankujeme benzín. S placením je teď řada na mě.
+   * 20:10
+      * Jedeme dál. Cestou dopisuju deník za včerejšek a cesta mi tak rychle ubíhá.
+   * 21:20
+      * Přijíždíme k hotelu, kde je pán na recepci zmatený a o naší rezervaci z Bookingu prý nic neví, ale nevadí, daný pokoj za stejnou cenu nám dává i tak, takže spát kde máme :)
+   * 23:00
+      * Všichni až na mě už jsou v posteli, já ještě vyvolávám fotky a dávám je do alba.
+   * 00:30
+      * Na psaní deníku už nemám síly, takže to nechávám na zítra a jdu už taky spát.
+
+## Deník bude brzy pokračovat :)
