@@ -6,9 +6,9 @@
  * Renata
  * Boris
 
-## 6.9.2016
+## 6.9.2016 - Přilétáme do USA se zpožděním
 
-## 7.9.2016
+## 7.9.2016 - Vjezd na soukromý pozemek, konečně online, Joshua Tree Park 
  * 6:30
    * Budíme se po 4 hodinách spánku, protože už nejsme schopni usnout. Vydatná dávka včerejšího polospánku z letadla nejspíš přesvědčuje mozek, že se mu už nechce spát., takže kolem 7:00 společně vstáváme.
  * 8:00
@@ -16,7 +16,6 @@
    * Volantu se ujímá Čermis, který se seznamuje s ovládáním našeho auta a všichni se bavíme tím, jak prudce funguje brzda, stejně jako včerejší první pokusy Borise.
  * 8:30
    * Naším cílem se stává stará viktoriánská vila Kimberly Crest z 19. století, která stojí na 1325 Prospect Drive, v městečku Redlands ležícího na naší cestě do Joshua Tree Park.
-   
    * Dílčím úkolem se stává návštěva obchodního domu, abychom nakoupili stany, karimatky a jiné zásoby, které nám chybí. Dávám si za úkol navíc najít pobočku T-Mobile, abych si tam koupil místní SIMku s internetem.
  * 9:00
    * Přijíždíme k vile a díky zlepšujícím se navigačním schopnostem Renči a navigace v mobilu vjíždíme přes jeden zákaz vjezdu a po chvilce i druhý přímo před hlavní vchod vily, zaznívá "Tam tudy přeci nemůžeš!" a Honza pravdivě odpovídá "Jinudy to nejde!" a tak tedy vjíždíme na verandu a dále.
@@ -60,7 +59,7 @@
  * 00:20
    * Zhasínáme a jdeme definitivně spát.
 
-## 8.9.2016
+## 8.9.2016 - Vlak ve Flagstaffu, kráter po meteoritu, Montezum Castle, Montezuma Well, Cathedral Rock
  * 06:30
    * Vstáváme a sdělujeme si svoje dojmy a zážitky z noci, kdy nás pravidelně budil nákladní vlak, jehož trať vedla přímo za zdmi hotelu, a strojvedoucí, který téměř vždy k tomu ještě intenzivně houkal. Dalším rušivým elementem během noci byl hukot odsávání v koupelne, kdykoliv šel někdo v noci na záchod.
  * 7:30
@@ -126,7 +125,7 @@
  * 23:00
    * Jdu konečně taky do postele a tím končí náš dnešní den.
 
-## 9.9.2016
+## 9.9.2016 - Grand Canyon, první stanování
    * 7:40
       * Vstáváme.
    * 8:20
@@ -176,8 +175,8 @@
       * Parkujeme auto na nám přiděleném místě a stavíme stany.
    * 21:30
       * Postupně zalézáme do stanů, abychom mohli vstřebávat dnešní zážitky a vyspat se na zítřek.
-      
-## 10.9.2016
+
+## 10.9.2016 - Grand Canyon, Horseshoe bend, přehrada Glen Canyon Dam
    * 6:30
       * Objevují se první sluneční paprsky
    * 7:00
@@ -281,7 +280,7 @@
    * 22:00
       * Po chvíli povídání si unavení jdeme lehnout a spát.
 
-## 12.9.2016
+## 12.9.2016 - Národní park Arches, první déšť, Dead Horse Point 
    * 7:15
       * Vstáváme, když nám vycházející slunce zalije chatku i přes stažené žaluzie.
    * 8:50
@@ -390,7 +389,7 @@
    * 01:15
       * Ulehám i já a tím končí dnešní den.
 
-## 13.9.2016
+## 13.9.2016 - Vysočina a národní les Dixie, nejvyšší bod, palcové kroupy, burger a koláč u Burr Trail Grill,  
    * 8:30
       * Vstáváme.
    * 9:10
@@ -447,7 +446,7 @@
    * 00:30
       * Na psaní deníku už nemám síly, takže to nechávám na zítra a jdu už taky spát.
 
-## 14.9.2016
+## 14.9.2016 - Národní park Zion
    * 9:30
       * Vstáváme.
    * 9:50
@@ -497,5 +496,28 @@
       * Nabíráme Borise a jedeme směrem do St.George, kde je [Utah Temple](https://www.lds.org/church/temples/st-george-utah?lang=eng), první mormonský kostel v USA.
    * 17:40
       * Opouštíme hranice národního parku Zion.
-   *
+   * 17:50
+      * Děláme si zastávku u Silver Reef, kde je místní ztracené město kolem stříbrného dolu a vybudované muzeum.
+   * 18:05
+      * Pokračujeme do St. George
+   * 18:30
+      * Stavíme a prohlížíme si první mormonský kostel v St. George - Utah Temple.
+   * 18:45
+      * Příjemně překvapeni odjíždíme dál a začínáme se porozhlížet po nějakém tom jídlu.
+   * 18:50
+      * Vidíme Taco Bell, které jsme ještě neochutnali, tak tu zastavujeme jdeme na to.
+   * 19:40
+      * S plnými břichy a peněženkami nasedáme do auta a jedeme směr Las Vegas!
+   * 19:50 -> 18:50
+      * Opouštíme Utah a vjíždíme na pár mil do Arizony.
+      * Překračujeme časovou zónu, ve které je čas o hodinu opožděný.
+   * 19:15
+      * Přejíždíme hranici z Arizony do Nevady.
+   * 20:05
+      * Už se setmělo a jak se blížíme k Las Vegas, otevírá se nám první výhled na světelnou skvrnu uprostřed pouštní tmy.
+      * Žasneme a zastavujeme u krajnice, abychom se pokochali a zkusili pořídit nějaké fotky.
+   * 20:30
+      * Zastavujeme u našeho dnešního noclehu, hotleu Aviation Inn.
+## 15.9.2016 - Hoover Dam, Las Vegas
+     
 ## Deník bude brzy pokračovat :)
