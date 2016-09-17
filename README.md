@@ -474,5 +474,28 @@
       * Zaznívá čeština z úst staršího páru, který hledá, kde tu přistál ten anděl. Hledali skalní útvar [Angel's Landing](http://www.zionnational-park.com/zion-angels-landing-trail.htm).
    * 14:00
       * Jsme u horního ze tří jezírek, kde jsem trošku zklamaný, že nevidím onu slibovanou smaragdovou barvu jezírka. Ovšem skalní stěna, která ho obepíná je i tak krásná. Z barev jednotlivých vrstev skály a fleků, které tu zanechala tekoucí voda, je tu vymalovaný obraz skal u moře. Alespoň tak to vidí moje fantazie.
-   
+   * 15:15
+      * Na zastávce č. 6 nasedáme na autobus, který nás vyhlídkovou trasou doveze zpět k návštěvnickému centru.
+   * 15:25
+      * Vystupujeme ještě na zastávce č. 9, abychom se podívali na kousek trailu k části parku [Narrows](https://www.nps.gov/zion/planyourvisit/thenarrows.htm), kde je kaňon úzký, který by nás měl dovést k místu, kde je kaňon jen asi 3-10 metrů široký a kolem 700 metrů hluboký a navíc tímto místem protéká řeka Virgin.
+   * 15:35
+      * Uvědomujeme si, že nemáme ani čas ani vhodné vybavení, jako uzavřené ponožkové boty nebo vycházkovou hůl, a tak otáčíme a vracíme se k autobusu.
+   * 15:45
+      * Jsme zpět na zastávce č. 9 a sedáme si do autobusu, jehož cesta končí u návštěvnického centra na zastávce č. 1.
+   * 16:15
+      * U zastávky č. 2 předčasně opouštíme autobus, abychom se podívali do místního muzea historie lidí. Nacházíme tu i WiFi připojení k internetu :)
+   * 16:30
+      * Už snad definitivně míříme k zastávce č. 1, k návštěvnickému centru.
+   * 16:35
+      * U návštěvnického centra se stavíme na konec fronty na autobus jiné linky, který nás přiblíží k autu.
+   * 16:50
+      * Autobusem, ve kterém je pro nás místo, konečně jedem k autu.
+      * Jedeme bez Borise, který si zapomněl svůj klobouk u muzea. Plán je takový, že zatímco on najde svůj klobouk a vrátí se k návštěvnickému centru, my nasedneme do auta a přijedeme pro něj.
+   * 17:05
+      * Jsme u auta a jedeme pro Borise.
+   * 17:10
+      * Nabíráme Borise a jedeme směrem do St.George, kde je [Utah Temple](https://www.lds.org/church/temples/st-george-utah?lang=eng), první mormonský kostel v USA.
+   * 17:40
+      * Opouštíme hranice národního parku Zion.
+   *
 ## Deník bude brzy pokračovat :)
