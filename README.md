@@ -518,6 +518,52 @@
       * Žasneme a zastavujeme u krajnice, abychom se pokochali a zkusili pořídit nějaké fotky.
    * 20:30
       * Zastavujeme u našeho dnešního noclehu, hotleu Aviation Inn.
+      
 ## 15.9.2016 - Hoover Dam, Las Vegas
-     
+   * 7:00
+      * Nemyslel jsem si, že jméno hotelu Aviation Inn bude tak výstižné, když mě poprvé budí hluk nad hotelem prolétající stíhačky z nedaleké letecké základny.
+   * 9:00
+      * Definitivně, ale pomalu vstáváme.
+   * 10:00
+      * Čermis s Renčou vyrážejí na lov místní kešky.
+   * 10:15
+      * Opouštíme hotelový pokoj a vydáváme se k cíli dnešního dne, přehradní hrázi [Hoover Dam](https://cs.wikipedia.org/wiki/Hooverova_p%C5%99ehrada) na jezeru Lake Mead.
+      * Volantu a řízení se pro dnešek ujímám já.
+   * 11:10
+      * Vjíždíme branou do národního parku Lake Mead.
+   * 11:40
+      * Vstupujeme do návštěvnického centra s vidinou suvenýru ve formě další z magnetek na lednici.
+   * 12:15
+      * Pokračujeme v cestě k přehradě.
+   * 12:25
+      * Děláme si zastávku na vyhlídce a prohlížíme si samotné jezero Leak Mead v celé jeho kráse.
+   * 12:45
+      * Konečně vjíždíme na hráz přehrady Hoover Dam.
+   * 12:50
+      * Placené parkoviště za $10, které se liší od neplaceného stříškou chránící auto před horkým sluncem, jsme nechali za sebou a parkujeme u jednoho z neplacených, které je jen o 5 minut pěšky dále od hráze.
+      * Vystupujeme a máme krásný výhled na hráz ze strany jezera Lake Mead.
+      * Míříme pěšky na hráz.
+   * 14:10
+      * V rámci placené prohlídky vodní elektrárny, která je součástí přehrady, jedeme výtahem do jejích útrob a dozvídáme se o historii i principech, na kterých přehrada funguje.
+   * 14:45
+      * Jsme zpět na denním světle a stojíme na vyhlídce z druhé strany hráze, než je volně přístupná.
+   * 15:50
+      * V rychosti jdeme do návštěvnického centra porozhlédnout se po další magnetce.
+   * 16:00
+      * Odjíždíme z přehrady a míříme do centra Las Vegas, kde nás čeká dvoudenní ubytování v hotelu [Circus Circus](https://en.wikipedia.org/wiki/Circus_Circus_Las_Vegas).
+   * 17:00
+      * Stavíme u benzinky Chevron v Las Vegas a bereme benzín.
+   * 17:20
+      * V nedaleké restauraci Denny's si dáváme večeři.
+   * 18:30
+      * Pokračujeme na hotel.
+   * 20:30
+      * Ubytovaní a umytí vyrážíme na večerní prohlídku hotelů a casin na známé části Las Vegas, Strip.
+   * 1:00
+      * Vracíme se na hotel a utahaní jdeme spát.
+
+## 16.9.2016 - Las Vegas, výprava za paměťovou kartou, Madame Tussauds, BurGR - Gordon Ramsay, Cheesecake Factory, kostky v casinu
+
+## 17.9.2016 - Death Valley (Údolí smrti)
+
 ## Deník bude brzy pokračovat :)
