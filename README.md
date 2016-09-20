@@ -743,7 +743,8 @@
    * 20:00
       * Opouštíme hranice národního parku Yosemity. Uvědomujeme si, že s vyjímkou $24 za stany jsme tu byli zcela zdarma a neplatili žádné permity.
    * 20:30
-      * Ve městešku Oakhurst bereme benzím a kupujeme si něco na zub.
+      * Ve městešku Oakhurst bereme benzín a kupujeme si něco na zub.
+      * Opět naskakuje signál mobilní sítě a jsme zase součástí civilizace.
    * 21:50
       * Konečně přijíždíme k našemu hotelu University Square Hotel ve městě Fresno, kde už na nás čekají sprchy a postele.
    * 22:30
