@@ -816,7 +816,7 @@
    * 19:40
       * Renča zapíná televizi, brouzdá kanály a nachází náš všech oblíbený právě běžící Návrat do budoucnosti II :) V reklamách se dozvídám, že po skončení dávají i III, takže můj plán na večer je jasný, v klidu ležet, léčit rýmičku s Martym McFlyem :)
    * 20:30
-      * Ostatní odcházení do nedaleké prádelny vyprat si oblečení.
+      * Ostatní odcházejí do nedaleké prádelny vyprat si oblečení.
       * Já prát nepotřebuji, tak zůstávám v posteli a snažím se vyležet rýmičku, abych byl zítra fit na San Francisco.
 
 ## Deník bude brzy pokračovat :)
