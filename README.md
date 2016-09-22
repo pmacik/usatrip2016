@@ -818,5 +818,7 @@
    * 20:30
       * Ostatní odcházejí do nedaleké prádelny vyprat si oblečení.
       * Já prát nepotřebuji, tak zůstávám v posteli a snažím se vyležet rýmičku, abych byl zítra fit na San Francisco.
+   * 22:15
+      * Ostatní se vracejí vypraní a voňaví :)
 
 ## Deník bude brzy pokračovat :)
