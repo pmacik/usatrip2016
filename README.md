@@ -945,5 +945,39 @@
       * Jdeme spát.
 
 ## 25.9.2016 - Pláž u Santa Barbary, příjezd do Los Angeles, Pink's Hot Dog, noční Los Angeles
+   * 10:30
+      * Vstáváme a Renča rozhořčeně prohlašuje: "Jaktože už je zase půl jedenáctý?".
+   * 11:00
+      * Odcházíme z pokoje a ještě na parkovišti hotelu, kde máme připojení k WiFi, hledáme ubytování v Los Angeles na naše poslední dvě noci, než poletíme zpět do Čech.
+   * 11:35
+      * Hotovo, našli jsme motel El Rancho za přijatelnou cenu a kvalitu, tak vyrážíme na nějakou pláž poblíž Santa Barbary, která leží na naší cestě do Los Angeles.
+   * 13:20
+      * Cestou zastavujeme u benzinky Seven Eleven, a bereme benzín, kupujeme kafe a hot dogy, které si plánujeme sníst na nedaleké pláži.
+   * 13:35
+      * Parkujeme nedaleko od pláže Carpinteria State Beach, kterou jsme cestou zahlédli a rozhodli se navštívit a znovu se vykoupat.
+      * Převlékáme se tedy do plavek a vzhůru ná pláž!
+   * 15:55
+      * Jsme zpátky u auta, oklepáváme jemný písek, oplachujeme citlivá místa od slané mořské vody a vyrážíme do Los Angeles.
+   * 16:10
+      * Z auta vidíme hejno asi 6 delfínů, kteří plavou nedaleko pobřeží :)
+   * 17:35
+      * Po několika desítkách minut na sedmiproudové dálnici sjíždíme do ulic Los Angeles.
+   * 18:00
+      * Přijíždíme k motelu, ubytováváme se a konečně se osvěžujeme ve sprše a smýváme tak zbytky mořské vody.
+   * 19:15
+      * S Borisem a Čermisem jsme se rozhodli vyrazit na večerní prohlídku města a cestou se najíst u [Pink's Hot Dog](http://www.pinkshollywood.com/), údajně nejlepším hot dogem v Americe.
+      * Renča raději už zůstává na pokoji, aby si odpočinula a nabrala síli na zítřejší výlet do města.
+   * 19:45
+      * Parkujeme u Pink's a stavíme se do fronty dát si hot dog.
+   * 21:10
+      * Jedeme ke hvězdárně a planetáriu [Griffith Observatory](https://en.wikipedia.org/wiki/Griffith_Observatory), odkud má být nádherný výhled na Los Angeles z ptačí perspektivy.
+   * 21:40
+      * Jsme na vyhlídce a připouštím, legendy nelhaly, je odtud opravdu krásný výhled na Los Angeles, až se mi tají dech.
+   * 22:00
+      * Hvězdárna zavírá a jsme nuceni ji opustit a jet pryč, tak se vydáváme zpět k autu.
+   * 22:40
+      * Jsme zpět na hotelu.
+   * 1:00
+      * Jdeme spát.
 
 ## Deník bude brzy pokračovat :)
