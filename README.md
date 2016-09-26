@@ -651,6 +651,7 @@
       * Už jsme v samotném údolí a přijíždíme k jednomu ze zajímavých míst tu, [Devil's Golf Course](https://en.wikipedia.org/wiki/Devil%27s_Golf_Course).
    * 17:50
       * Jsme u dalšího zajímavého místa, [Badwater Basin](https://en.wikipedia.org/wiki/Badwater_Basin), které je 85,9 m pod úrovní mořské hladiny a je zde k nalezení voda, která je ale slaná na nevhodná k pití.
+      * Potkáváme mladý Belgicko-Kanadský pár, se kterým si vyměnujeme laskavost a vzájemně se fotíme se západem slunce. Ještě netušíme, že se s nimi nevidíme na konec.
    * 18:45
       * Jsme už na cestě do městečka Olancha, kde se chceme ubytovat, a děláme si menší zajížďku scénickou cestou [Artist's Drive](https://en.wikipedia.org/wiki/Places_of_interest_in_the_Death_Valley_area#Artist.27s_Drive_and_Palette), kde okolní skály hrají všemi barvami - nádhera.
    * 21:00
@@ -858,5 +859,46 @@
       * Zhasínáme světla a odcházíme do říše snů.
 
 ## 23.9.2016 - San Francisco, Cable Car, Lombard Street, Pier 39, vězení Alcatraz
+   * 10:00
+      * Vstáváme.
+   * 11:10
+      * Vyrážíme na prohlídku San Francisca podruhé.
+   * 12:00
+      * Stojíme v centru San Francisca na Powell St. a kupujeme lístky na projížďku [Cabel Car](https://en.wikipedia.org/wiki/San_Francisco_cable_car_system).
+   * 12:05
+      * Stavíme se do fronty u konečné točny na zastávce Powell St., která je dlouhá asi 150 lidí.
+      * Čermis odhaduje dobu, než se ve frontě posuneme k nastoupení, na 20 minut.
+   * 12:13
+      * Boris čekání ve frontě vzdává, odpojuje se od nás a vyráží pěšky.
+   * 12:25
+      * Fronta se pousunula asi o 15 lidí a Čermis vzdává, načež se domlouváme na tom, že popojdeme pěšky a pak nastoupíme o kus dál.
+   * 13:05
+      * Naše chůze nás přivádí do čínské čtvrti Chinatown, kterou si procházíme a prohlížíme, než dojdeme na křižovatku Powell St. a Jackon St., kde bychom mohli mít šanci nastoupit na Cable Car, které tu má zastávku.
+   * 13:40
+      * Po prohlídce čínské čtvrti nakonec nastupujeme o zastávku dříve a užíváme si jízdu ulicemi San Franciscem.
+   * 13:55
+      * Vyskakujeme z Cable Car na zastávce u druhé nejzakroucenější ulici světa [Lombard Street](https://cs.wikipedia.org/wiki/Lombard_Street_a_Vermont_Street).
+      * Tu scházíme dolů a prohížíme si výhled na východní San Francisco spolu s věží [Coit Tower](https://cs.wikipedia.org/wiki/Coit_Tower).
+      * Pak už míříme na sever k nábřeží San Francisco Bay.
+   * 17:30
+      * Jsme na nejznámějším molu Pier 39 a v rychlosti si ho procházíme.
+   * 18:00
+      * Na molu Pier 33 se stavíme do fronty na přívoz, který nás má dovézt na ostrov [Alcatraz](https://cs.wikipedia.org/wiki/Alcatraz), kde leží dnes už nefungující věznice.
+      * Na palubě lodi již po páté potkáváme náš oblíbený Belgicko-Kanadský pár a tak si s nimi děláme společnou fotku.
+   * 18:55
+      * Vyloďujeme se na Alcatrazu a vyrážíme na jeho prohlídku komentovanou elektronickým průvodcem, který nás provádí prostorami vězení i jeho historií a který je namluvený skutečnými hlídači a bývalými vězni, co tu byli.
+   * 21:25
+      * Plni dojmů odjíždíme posledním přívozem zpět na pevninu do San Francisca.
+   * 21:50
+      * Přistáváme u pevniny a jdeme pěšky přes celé nábřeží až k zastávce BARTa Embarcadero, odkud se chceme nechat dovézt vlakem až na naši zastávku u hotelu.
+   * 23:00
+      * Jsme konečně v Oaklandu a jdeme na hotel.
+      * Děláme si mezipřistání v nedalekém obchodě, kde si kupujeme něco na zub.
+   * 0:00
+      * Jdeme všichni spát, abychom zítra vstali brzy a stihli slabý provoz přes most Golden Gate Bridge a mohli si ho tak v klidu projet autem.
+
+## 24.9.2016 - Golden Gate Bridge, Monterey Bay Aquarium, 17 Miles Drive, první koupání v Pacifiku
+
+## 25.9.2016 - Pláž u Santa Barbary, příjezd do Los Angeles, Pink's Hot Dog, noční Los Angeles
       
 ## Deník bude brzy pokračovat :)
