@@ -1,4 +1,4 @@
-ucastnici.md
+intro.md
 20160906.md
 20160907.md
 20160908.md
@@ -22,5 +22,4 @@ ucastnici.md
 20160926.md
 20160927.md
 20160928.md
-20160929.md
-coming-soon.md
+end.md
