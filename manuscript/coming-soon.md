@@ -1,0 +1,1 @@
+## Deník bude brzy pokračovat :)
